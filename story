@@ -6,4 +6,4 @@ and the hare started mocking the tortoise.
 
 The tortoise got upset and challenged the hare for a race. 
 
-Hare says, we will race from my home to the other side of the jungle.
+Hare says, we will race from my home to the other side of the jungle. The tortoise agrees and they they both spent time training for the race.
